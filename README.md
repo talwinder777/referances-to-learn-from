@@ -1,1 +1,1 @@
-This repository has interestoing referances from where to learn.
+This repository has interesting referances from where to learn.
